@@ -1,1 +1,0 @@
-Olá. me chamo Luis Felipe. 🍁 Tenho 19 anos e estou Cursando o 2° semestre de Análise e Desenvolvimento de Sistemas na Fatec de Mogi Mirim. 🌱 Estudando Linguagem C \ HTML5 e CSS3 \ e pretendo aprender mais.
